@@ -18,4 +18,4 @@ I am a 5th-semester **Software Engineering student** at the University of Poonch
 
 ### 📫 How to reach me
 - **LinkedIn:** [linkedin.com/in/hina-ayoub-ba5431444](https://linkedin.com/in/hina-ayoub-ba5431444)
-- **Email:** hinakhan3715@gmail.com
+- **Email:** hinakhan3715@gmail.com | hinaayoub97@gmail.com
